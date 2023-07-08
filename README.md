@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Dev em Dobro 😁
+## Hey, what's up? My friends, I'm Danubia 😎
 
  <div>
    <a href="https://github.com/DanubiaOliver">
